@@ -4,7 +4,9 @@
 
 🦄  Co-founder and Executive Director, Palawan Youth Tech Society
 
-⚡  Student Technical Staff, Palawan State University
+🍕  Program Team Member, Google Developer Group
+
+⚡  Student Technical Assistant, Palawan State University
 
 🌱  Secretary, PSU E-Sports Community
 
