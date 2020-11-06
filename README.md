@@ -6,7 +6,9 @@
 
 🍕  Program Team Member, Google Developer Group
 
-⚡  Student Technical Assistant, Palawan State University
+⚡  Technical Student Assistant, Palawan State University
+
+🥞  Team Leader, TSA, Palawan State University
 
 🌱  Secretary, PSU E-Sports Community
 
