@@ -10,6 +10,8 @@
 
 🥞  Team Leader, TSA, Palawan State University
 
+🎀  Clerk II (Administrative Aide IV), Department of Education - Division of Palawan
+
 🌱  Secretary, PSU E-Sports Community
 
 ✨  Former President, Society of Information Technology Enthusiats - Palawan State University Student Chapter
